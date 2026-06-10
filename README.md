@@ -17,7 +17,7 @@ rmking
 
 <br>
 
-$${{\color{#c30000}{\textsf{ both rusame n fruk make me upset n uncomfy , if u do want to interact just dont mention fruk/rusame or any england and russia ships that ARENT ruseng !!!!! \}}}}$$
+$${{\color{#c30000}{\textsf{ both rusame n fruk make me upset n uncomfy , if u do want to interact just dont mention fruk/rusame or any england and russia ships!!!!! \}}}}$$
 
 </details>
 
