@@ -10,3 +10,15 @@ rmking
 [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/noyadeplus) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus)
 </div>
 
+<div align="center">
+
+<details>
+<summary><strong> WHY DO I DISLIKE FRUK AND RUSAME FANS INTERACTING?? </strong></summary>
+
+<br>
+
+$${{\color{#FF5C00}{\textsf{ both rusame n fruk make me upset & uncomfy , if u do want to interact just dont mention fruk/rusame or any england and russia ships that ARENT ruseng !!!!! \}}}}$$
+
+</details>
+
+</div>
