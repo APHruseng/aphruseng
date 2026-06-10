@@ -17,7 +17,9 @@ rmking
 
 <br>
 
-$${{\color{#c30000}{\textsf{ both rusame n fruk make me upset n uncomfy , if u do want to interact just dont mention fruk/rusame or any england and russia ships!!!!! \}}}}$$
+$${{\color{#c30000}{\textsf{ both rusame n fruk make me upset n uncomfy , if u do want to interact just dont mention fruk/rusame or any england and russia ships \}}}}$$
+$${{\color{#c30000}{\textsf{ that arent ruseng/engrus. ruseng is a comfort ship for me and thats why fruk/rusame upset me !! im so sorry i feel extremely \}}}}$$
+$${{\color{#c30000}{\textsf{ sensitive saying this, its my stupi dfucking brain being weird.,. SORRYOYOYY \}}}}$$
 
 </details>
 
