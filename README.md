@@ -1,5 +1,5 @@
 ---
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=noyadeplus&label=Profile%20views&color=c30000&style=flat" alt="I-AM-YOuR-LORD" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=noyadeplus&label=Slaughters%20&color=c30000&style=flat" alt="I-AM-YOuR-LORD" /> </p>
 
 <p align="center">
 rmking
