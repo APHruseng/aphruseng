@@ -1,7 +1,7 @@
 ---
 <p align="center">
   
-  <img src="https://komarev.com/ghpvc/?username=noyadeplus&label=Slaughters%20&color=c3000&style=flat" alt="aphruseng" /> 
+  <img src="https://komarev.com/ghpvc/?username=aphruseng&label=Slaughters%20&color=c3000&style=flat" alt="aphruseng" /> 
   
 </p>
 
