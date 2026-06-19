@@ -1,7 +1,7 @@
 ---
 <p align="center">
   
-[![Hits](https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=slaughters&extraCount=221&color=ff0000&labelColor=550000)](https://hits.sh/github.com/aphruseng/)
+<a href="https://hits.sh/github.com/aphruseng/"><img alt="Hits" src="https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=slaughters&extraCount=221&color=ff0000&labelColor=550000"/></a>
   
 </p>
 
