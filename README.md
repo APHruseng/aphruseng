@@ -11,6 +11,8 @@ rmking
  [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus) [guns.lol](https://guns.lol/ruseng) [guns.lol 2](https://guns.lol/engrus)
 </div>
 
+[$\color{#FF5733}{\text{strawpage}}$](https://example.com)
+
 <div align="center">
 
 yuo fdont need 2 knw much aboutme other than i love ruseng and i am a violent dog.
