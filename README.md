@@ -8,10 +8,17 @@ rmking
 
 <div align="center"> 
   
-[StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus)
+$${{\color{#c30000}{\textsf{ [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus) [guns.lol](https://guns.lol/ruseng) [guns.lol 2](https://guns.lol/engrus) \}}}}$$
 </div>
 
 <div align="center">
+
+$${{\color{#c30000}{\textsf{ yuo fdont need 2 knw much aboutme other than i love ruseng. \}}}}$$
+
+
+
+
+
 
 <details>
 <summary><strong> WHY DO I DISLIKE FRUK AND RUSAME FANS INTERACTING?? </strong></summary>
