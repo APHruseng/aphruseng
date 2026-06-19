@@ -1,7 +1,7 @@
 ---
 <p align="center">
   
-  <img src="https://komarev.com/ghpvc/?username=aphruseng&label=Slaughters%20&color=c3000&style=flat" alt="aphruseng" /> 
+[![Hits](https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=slaughters&extraCount=221&color=ff0000&labelColor=550000)](https://hits.sh/github.com/aphruseng/)
   
 </p>
 
