@@ -8,7 +8,7 @@ rmking
 
 <div align="center"> 
   
-$${{\color{#c30000}{\textsf{ [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus) [guns.lol](https://guns.lol/ruseng) [guns.lol 2](https://guns.lol/engrus) \}}}}$$
+ [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus) [guns.lol](https://guns.lol/ruseng) [guns.lol 2](https://guns.lol/engrus)
 </div>
 
 <div align="center">
