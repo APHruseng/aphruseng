@@ -5,14 +5,6 @@
 <p align="center">
 rmking
 </p>
-
-<div align="center"> 
-  
- [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/becnoir) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus) [guns.lol](https://guns.lol/ruseng) [guns.lol 2](https://guns.lol/engrus)
-</div>
-
-<div align="center">
-
 [title town](https://github.com/title-town)
 
 yuo fdont need 2 knw much aboutme other than i love ruseng and i am a violent dog.
