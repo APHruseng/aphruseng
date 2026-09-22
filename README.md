@@ -10,4 +10,4 @@
 
 
 
-  <a href="https://hits.sh/github.com/aphruseng/"><img alt="Hits" src="https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=bugles%blown%for%the%british&extraCount=221&color=000000&labelColor=ffffff"/></a>
+  <a href="https://hits.sh/github.com/aphruseng/"><img alt="Hits" src="https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=bugles_blown_for_the_british&extraCount=221&color=000000&labelColor=ffffff"/></a>
