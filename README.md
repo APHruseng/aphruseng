@@ -6,7 +6,7 @@
 
 
 
-୭　˖　𓏼　your jealousy is such an evil thing
+୭　˖　𓏼　" You'll hurt yourself."
 
 
 
