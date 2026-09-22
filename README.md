@@ -2,11 +2,11 @@
 <div align="center">
 
 
-![](https://file.garden/afOzvZALWB7P0ssM/great.png)
+![](https://klipy.com/gifs/duke-of-wellington-2)
 
 
 
-୭　˖　𓏼　ill put my stuff here soon
+୭　˖　𓏼　your jealousy is such an evil thing
 
 
 
